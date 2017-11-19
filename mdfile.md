@@ -1,13 +1,5 @@
 qlsdqsld qsdjqs dpqsdjqsd
-)"'é" qjpdzd
-
-qsd 
-q 
-qs
-d q
-sd
-q sdqs
-dq
+)"'é" qjpd
 sd q
 sdq
 ::::::::::::::::
